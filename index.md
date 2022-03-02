@@ -4,9 +4,9 @@
 <br>
 ![avatar](https://i.ibb.co/q7g4K3h/Oneida-Limited-Ad-Oneida-Community-Oneida-Untapped-New-York-NYC-791x1024-2.jpg)
 
-作品：The Threefold Tie
-作者：Aster Glenn Gray
-评分：4.4/5
+作品：The Threefold Tie <br>
+作者：Aster Glenn Gray <br>
+评分：4.4/5<br>
 
 关键词：Oneida乌托邦历史同人；两男一女；bi；”我是来加入这个家，不是来拆散这个家“
 
